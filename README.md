@@ -1,2 +1,2 @@
 # rsschool-cv
-https://romzdikhub.github.io/rsschool-cv-html
+https://romzdikhub.github.io/rsschool-cv-/cv
