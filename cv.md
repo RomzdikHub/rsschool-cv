@@ -4,8 +4,8 @@ Junior Front-end Developer
 ---
 Contact information:  
 
-**Phone:** +380 111 111 111 
-**E-mail:** romzdik2006@gmail.com  
+**Phone:** +380 111 111 111  
+**E-mail:** romzdik333@gmail.com  
 **Telegram:** @romzdik  
 [Instagram](https://www.instagram.com/romzdik/)
 ---
